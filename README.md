@@ -1,1 +1,0 @@
-# ringotstq9zawl
